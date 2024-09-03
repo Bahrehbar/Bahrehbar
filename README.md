@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Bahar
+- 👀 I’m interested in user research
+- 🌱 I’m currently studying integrated design
+- 💞️ I’m looking to collaborate on UX/UI projects
+- 📫 You can reach me by [email](mailto:bahare.bahrebar@gmail.com)
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I can clap with one hand!
